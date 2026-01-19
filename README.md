@@ -1,0 +1,2 @@
+# AgainlyPrivacyPolicy
+Privacy policy
